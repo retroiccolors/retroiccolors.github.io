@@ -1,0 +1,15 @@
+---
+layout: post
+date: '2015-07-26'
+title: "Elizabeth Stuart Chloe Short Sleeves Sweep/Brush Train Sheath/Column"
+category: Elizabeth Stuart
+tags: [Elizabeth Stuart,Sheath/Column,Bateau,Sweep/Brush Train,Short Sleeves]
+---
+### Elizabeth Stuart Chloe
+Just **$299.99**
+###   Short Sleeves Sweep/Brush Train Sheath/Column 
+<table><tr><td>BRANDS</td><td>Elizabeth Stuart</td></tr><tr><td>Silhouette</td><td>Sheath/Column</td></tr><tr><td>Neckline</td><td>Bateau</td></tr><tr><td>Hemline/Train</td><td>Sweep/Brush Train</td></tr><tr><td>Sleeve</td><td>Short Sleeves</td></tr></table>
+<a href="https://www.readybrides.com/en/elizabeth-stuart-fall-2014-15/29041-elizabeth-stuart-chloe.html"><img src="//static.msromantic.com/62601/elizabeth-stuart-chloe.jpg" alt="Elizabeth Stuart Chloe" style="width:100%;" /></a>
+
+<!-- break -->
+Buy it: [https://www.readybrides.com/en/elizabeth-stuart-fall-2014-15/29041-elizabeth-stuart-chloe.html](https://www.readybrides.com/en/elizabeth-stuart-fall-2014-15/29041-elizabeth-stuart-chloe.html)
