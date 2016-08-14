@@ -32,8 +32,8 @@ footer-links:
 
 related-sites:
   - holein.github.io 
-  - variousweddingdress.github.io 
-  - colorfulpromdress.github.io 
+  - princessan.github.io
+  - retroiccolors.github.io
   - bonnyweddingdress.github.io 
   - charmingbridaldress.github.io 
   - weddingstyledress.github.io 
@@ -49,7 +49,7 @@ google_analytics:
 
 # Your website URL (e.g. http://barryclark.github.io or http://www.barryclark.co)
 # Used for Sitemap.xml and your RSS feed
-url: https://colorfulpromdress.github.io
+url: https://retroiccolors.github.io
 
 # If you're hosting your site at a Project repository on GitHub pages
 # (http://yourusername.github.io/repository-name)
