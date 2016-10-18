@@ -9,7 +9,7 @@ tags: [Georges Hobeika,Mermaid/Trumpet,High Neck,Floor-Length,Long Sleeves]
 Just **$439.99**
 ###   Long Sleeves Floor-Length Mermaid/Trumpet 
 <table><tr><td>BRANDS</td><td>Georges Hobeika</td></tr><tr><td>Silhouette</td><td>Mermaid/Trumpet</td></tr><tr><td>Neckline</td><td>High Neck</td></tr><tr><td>Hemline/Train</td><td>Floor-Length</td></tr><tr><td>Sleeve</td><td>Long Sleeves</td></tr></table>
-<a href="https://www.readybrides.com/en/georges-hobeika/33903-georges-hobeika-ready-to-wear-fall-winter-15-16-look-25.html"><img src="//static.msromantic.com/70951/georges-hobeika-ready-to-wear-fall-winter-15-16-look-25.jpg" alt="Georges Hobeika Ready-To-Wear Fall-Winter 15-16 Look 25" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/georges-hobeika/33903-georges-hobeika-ready-to-wear-fall-winter-15-16-look-25.html"><img src="//static.msromantic.com/70951/georges-hobeika-ready-to-wear-fall-winter-15-16-look-25.jpg" alt="Georges Hobeika Ready-To-Wear Fall-Winter 15-16 Look 25" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/georges-hobeika/33903-georges-hobeika-ready-to-wear-fall-winter-15-16-look-25.html](https://www.readybrides.com/en/georges-hobeika/33903-georges-hobeika-ready-to-wear-fall-winter-15-16-look-25.html)
+Buy it: [https://www.antebrands.com/en/georges-hobeika/33903-georges-hobeika-ready-to-wear-fall-winter-15-16-look-25.html](https://www.antebrands.com/en/georges-hobeika/33903-georges-hobeika-ready-to-wear-fall-winter-15-16-look-25.html)

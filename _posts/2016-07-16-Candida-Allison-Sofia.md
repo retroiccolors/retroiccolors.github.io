@@ -9,8 +9,8 @@ tags: [Candida Allison]
 Just **$269.99**
 ### 
 
-<a href="https://www.readybrides.com/en/candida-allison/20524-candida-allison-sofia.html"><img src="//static.msromantic.com/46368/candida-allison-sofia.jpg" alt="Candida Allison Sofia" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/candida-allison/20524-candida-allison-sofia.html"><img src="//static.msromantic.com/46368/candida-allison-sofia.jpg" alt="Candida Allison Sofia" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/candida-allison/20524-candida-allison-sofia.html"><img src="//static.msromantic.com/46369/candida-allison-sofia.jpg" alt="Candida Allison Sofia" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/candida-allison/20524-candida-allison-sofia.html"><img src="//static.msromantic.com/46367/candida-allison-sofia.jpg" alt="Candida Allison Sofia" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/candida-allison/20524-candida-allison-sofia.html](https://www.readybrides.com/en/candida-allison/20524-candida-allison-sofia.html)
+<!-- break --><a href="https://www.antebrands.com/en/candida-allison/20524-candida-allison-sofia.html"><img src="//static.msromantic.com/46369/candida-allison-sofia.jpg" alt="Candida Allison Sofia" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/candida-allison/20524-candida-allison-sofia.html"><img src="//static.msromantic.com/46367/candida-allison-sofia.jpg" alt="Candida Allison Sofia" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/candida-allison/20524-candida-allison-sofia.html](https://www.antebrands.com/en/candida-allison/20524-candida-allison-sofia.html)

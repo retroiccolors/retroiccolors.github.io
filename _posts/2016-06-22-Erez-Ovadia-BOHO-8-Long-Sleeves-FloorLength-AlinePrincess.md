@@ -9,7 +9,7 @@ tags: [Erez Ovadia ,Erez Ovadia,Aline/Princess ,Sweetheart,Floor-Length,Long Sle
 Just **$309.99**
 ###   Long Sleeves Floor-Length Aline/Princess  
 <table><tr><td>BRANDS</td><td>Erez Ovadia</td></tr><tr><td>Silhouette</td><td>Aline/Princess </td></tr><tr><td>Neckline</td><td>Sweetheart</td></tr><tr><td>Hemline/Train</td><td>Floor-Length</td></tr><tr><td>Sleeve</td><td>Long Sleeves</td></tr></table>
-<a href="https://www.readybrides.com/en/erez-ovadia-wedding-dress-vintage-collection/30307-erez-ovadia-boho-8.html"><img src="//static.msromantic.com/65399/erez-ovadia-boho-8.jpg" alt="Erez Ovadia BOHO - 8" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/erez-ovadia-wedding-dress-vintage-collection/30307-erez-ovadia-boho-8.html"><img src="//static.msromantic.com/65399/erez-ovadia-boho-8.jpg" alt="Erez Ovadia BOHO - 8" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/erez-ovadia-wedding-dress-vintage-collection/30307-erez-ovadia-boho-8.html"><img src="//static.msromantic.com/65398/erez-ovadia-boho-8.jpg" alt="Erez Ovadia BOHO - 8" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/erez-ovadia-wedding-dress-vintage-collection/30307-erez-ovadia-boho-8.html](https://www.readybrides.com/en/erez-ovadia-wedding-dress-vintage-collection/30307-erez-ovadia-boho-8.html)
+<!-- break --><a href="https://www.antebrands.com/en/erez-ovadia-wedding-dress-vintage-collection/30307-erez-ovadia-boho-8.html"><img src="//static.msromantic.com/65398/erez-ovadia-boho-8.jpg" alt="Erez Ovadia BOHO - 8" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/erez-ovadia-wedding-dress-vintage-collection/30307-erez-ovadia-boho-8.html](https://www.antebrands.com/en/erez-ovadia-wedding-dress-vintage-collection/30307-erez-ovadia-boho-8.html)

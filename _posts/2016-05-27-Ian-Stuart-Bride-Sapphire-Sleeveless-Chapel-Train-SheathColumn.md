@@ -9,7 +9,7 @@ tags: [Ian Stuart,Sheath/Column,Sweetheart,Chapel Train,Sleeveless]
 Just **$419.99**
 ###   Sleeveless Chapel Train Sheath/Column 
 <table><tr><td>BRANDS</td><td>Ian Stuart</td></tr><tr><td>Silhouette</td><td>Sheath/Column</td></tr><tr><td>Neckline</td><td>Sweetheart</td></tr><tr><td>Hemline/Train</td><td>Chapel Train</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/ian-stuart-bride-killer-queen/34484-ian-stuart-bride-sapphire.html"><img src="//static.msromantic.com/71664/ian-stuart-bride-sapphire.jpg" alt="Ian Stuart Bride Sapphire" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/ian-stuart-bride-killer-queen/34484-ian-stuart-bride-sapphire.html"><img src="//static.msromantic.com/71664/ian-stuart-bride-sapphire.jpg" alt="Ian Stuart Bride Sapphire" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/ian-stuart-bride-killer-queen/34484-ian-stuart-bride-sapphire.html"><img src="//static.msromantic.com/71663/ian-stuart-bride-sapphire.jpg" alt="Ian Stuart Bride Sapphire" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/ian-stuart-bride-killer-queen/34484-ian-stuart-bride-sapphire.html](https://www.readybrides.com/en/ian-stuart-bride-killer-queen/34484-ian-stuart-bride-sapphire.html)
+<!-- break --><a href="https://www.antebrands.com/en/ian-stuart-bride-killer-queen/34484-ian-stuart-bride-sapphire.html"><img src="//static.msromantic.com/71663/ian-stuart-bride-sapphire.jpg" alt="Ian Stuart Bride Sapphire" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/ian-stuart-bride-killer-queen/34484-ian-stuart-bride-sapphire.html](https://www.antebrands.com/en/ian-stuart-bride-killer-queen/34484-ian-stuart-bride-sapphire.html)

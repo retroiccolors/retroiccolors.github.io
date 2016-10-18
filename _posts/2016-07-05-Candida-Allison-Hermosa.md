@@ -9,8 +9,8 @@ tags: [Candida Allison]
 Just **$279.99**
 ### 
 
-<a href="https://www.readybrides.com/en/candida-allison/20513-candida-allison-hermosa.html"><img src="//static.msromantic.com/46335/candida-allison-hermosa.jpg" alt="Candida Allison Hermosa" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/candida-allison/20513-candida-allison-hermosa.html"><img src="//static.msromantic.com/46335/candida-allison-hermosa.jpg" alt="Candida Allison Hermosa" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/candida-allison/20513-candida-allison-hermosa.html"><img src="//static.msromantic.com/46336/candida-allison-hermosa.jpg" alt="Candida Allison Hermosa" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/candida-allison/20513-candida-allison-hermosa.html"><img src="//static.msromantic.com/46334/candida-allison-hermosa.jpg" alt="Candida Allison Hermosa" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/candida-allison/20513-candida-allison-hermosa.html](https://www.readybrides.com/en/candida-allison/20513-candida-allison-hermosa.html)
+<!-- break --><a href="https://www.antebrands.com/en/candida-allison/20513-candida-allison-hermosa.html"><img src="//static.msromantic.com/46336/candida-allison-hermosa.jpg" alt="Candida Allison Hermosa" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/candida-allison/20513-candida-allison-hermosa.html"><img src="//static.msromantic.com/46334/candida-allison-hermosa.jpg" alt="Candida Allison Hermosa" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/candida-allison/20513-candida-allison-hermosa.html](https://www.antebrands.com/en/candida-allison/20513-candida-allison-hermosa.html)

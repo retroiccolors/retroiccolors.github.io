@@ -9,7 +9,7 @@ tags: [Gwendolynne,Sheath/Column,Halter,Ankle-Length,Sleeveless]
 Just **$499.99**
 ###   Sleeveless Ankle-Length Sheath/Column 
 <table><tr><td>BRANDS</td><td>Gwendolynne</td></tr><tr><td>Silhouette</td><td>Sheath/Column</td></tr><tr><td>Neckline</td><td>Halter</td></tr><tr><td>Hemline/Train</td><td>Ankle-Length</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/gwendolynne/32381-gwendolynne-winnona.html"><img src="//static.msromantic.com/69190/gwendolynne-winnona.jpg" alt="Gwendolynne Winnona" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/gwendolynne/32381-gwendolynne-winnona.html"><img src="//static.msromantic.com/69190/gwendolynne-winnona.jpg" alt="Gwendolynne Winnona" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/gwendolynne/32381-gwendolynne-winnona.html](https://www.readybrides.com/en/gwendolynne/32381-gwendolynne-winnona.html)
+Buy it: [https://www.antebrands.com/en/gwendolynne/32381-gwendolynne-winnona.html](https://www.antebrands.com/en/gwendolynne/32381-gwendolynne-winnona.html)

@@ -9,7 +9,7 @@ tags: [Ida Sjöstedt aw13]
 Just **$339.99**
 ### 
 
-<a href="https://www.readybrides.com/en/ida-sjoestedt-aw13/34523-ida-sjostedt-leonie-dress.html"><img src="//static.msromantic.com/71705/ida-sjostedt-leonie-dress.jpg" alt="Ida Sjostedt leonie dress" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/ida-sjoestedt-aw13/34523-ida-sjostedt-leonie-dress.html"><img src="//static.msromantic.com/71705/ida-sjostedt-leonie-dress.jpg" alt="Ida Sjostedt leonie dress" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/ida-sjoestedt-aw13/34523-ida-sjostedt-leonie-dress.html](https://www.readybrides.com/en/ida-sjoestedt-aw13/34523-ida-sjostedt-leonie-dress.html)
+Buy it: [https://www.antebrands.com/en/ida-sjoestedt-aw13/34523-ida-sjostedt-leonie-dress.html](https://www.antebrands.com/en/ida-sjoestedt-aw13/34523-ida-sjostedt-leonie-dress.html)

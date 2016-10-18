@@ -9,7 +9,7 @@ tags: [Gwendolynne,Spaghetti Straps,Sleeveless]
 Just **$429.99**
 ###   Sleeveless   
 <table><tr><td>BRANDS</td><td>Gwendolynne</td></tr><tr><td>Neckline</td><td>Spaghetti Straps</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/gwendolynne/32374-gwendolynne-florence.html"><img src="//static.msromantic.com/69181/gwendolynne-florence.jpg" alt="Gwendolynne Florence" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/gwendolynne/32374-gwendolynne-florence.html"><img src="//static.msromantic.com/69181/gwendolynne-florence.jpg" alt="Gwendolynne Florence" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/gwendolynne/32374-gwendolynne-florence.html](https://www.readybrides.com/en/gwendolynne/32374-gwendolynne-florence.html)
+Buy it: [https://www.antebrands.com/en/gwendolynne/32374-gwendolynne-florence.html](https://www.antebrands.com/en/gwendolynne/32374-gwendolynne-florence.html)

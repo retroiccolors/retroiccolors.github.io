@@ -9,7 +9,7 @@ tags: [Delsa-Ambra Cerimonia,Delsa-Ambra Cerimonia ,Sheath/Column,Illusion,Floor
 Just **$279.99**
 ###   Sleeveless Floor-Length Sheath/Column 
 <table><tr><td>BRANDS</td><td>Delsa-Ambra Cerimonia </td></tr><tr><td>Silhouette</td><td>Sheath/Column</td></tr><tr><td>Neckline</td><td>Illusion</td></tr><tr><td>Hemline/Train</td><td>Floor-Length</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/delsa-ambra-cerimonia/21915-delsa-c9634.html"><img src="//static.msromantic.com/48742/delsa-c9634.jpg" alt="Delsa C9634" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/delsa-ambra-cerimonia/21915-delsa-c9634.html"><img src="//static.msromantic.com/48742/delsa-c9634.jpg" alt="Delsa C9634" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/delsa-ambra-cerimonia/21915-delsa-c9634.html"><img src="//static.msromantic.com/48741/delsa-c9634.jpg" alt="Delsa C9634" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/delsa-ambra-cerimonia/21915-delsa-c9634.html](https://www.readybrides.com/en/delsa-ambra-cerimonia/21915-delsa-c9634.html)
+<!-- break --><a href="https://www.antebrands.com/en/delsa-ambra-cerimonia/21915-delsa-c9634.html"><img src="//static.msromantic.com/48741/delsa-c9634.jpg" alt="Delsa C9634" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/delsa-ambra-cerimonia/21915-delsa-c9634.html](https://www.antebrands.com/en/delsa-ambra-cerimonia/21915-delsa-c9634.html)

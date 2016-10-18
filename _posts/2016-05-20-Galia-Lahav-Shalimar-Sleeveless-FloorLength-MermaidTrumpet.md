@@ -9,7 +9,7 @@ tags: [Galia Lahav ,Galia Lahav,Mermaid/Trumpet,High Neck,Floor-Length,Sleeveles
 Just **$399.99**
 ###   Sleeveless Floor-Length Mermaid/Trumpet 
 <table><tr><td>BRANDS</td><td>Galia Lahav</td></tr><tr><td>Silhouette</td><td>Mermaid/Trumpet</td></tr><tr><td>Neckline</td><td>High Neck</td></tr><tr><td>Hemline/Train</td><td>Floor-Length</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/galia-lahav-/30741-galia-lahav-shalimar.html"><img src="//static.msromantic.com/66243/galia-lahav-shalimar.jpg" alt="Galia Lahav Shalimar" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/galia-lahav-/30741-galia-lahav-shalimar.html"><img src="//static.msromantic.com/66243/galia-lahav-shalimar.jpg" alt="Galia Lahav Shalimar" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/galia-lahav-/30741-galia-lahav-shalimar.html"><img src="//static.msromantic.com/66242/galia-lahav-shalimar.jpg" alt="Galia Lahav Shalimar" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/galia-lahav-/30741-galia-lahav-shalimar.html](https://www.readybrides.com/en/galia-lahav-/30741-galia-lahav-shalimar.html)
+<!-- break --><a href="https://www.antebrands.com/en/galia-lahav-/30741-galia-lahav-shalimar.html"><img src="//static.msromantic.com/66242/galia-lahav-shalimar.jpg" alt="Galia Lahav Shalimar" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/galia-lahav-/30741-galia-lahav-shalimar.html](https://www.antebrands.com/en/galia-lahav-/30741-galia-lahav-shalimar.html)

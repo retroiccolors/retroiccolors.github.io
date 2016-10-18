@@ -9,7 +9,7 @@ tags: [Gina K,Ballgown,Sweetheart,Sleeveless]
 Just **$449.99**
 ###   Sleeveless  Ballgown 
 <table><tr><td>BRANDS</td><td>Gina K</td></tr><tr><td>Silhouette</td><td>Ballgown</td></tr><tr><td>Neckline</td><td>Sweetheart</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/gina-k-tulip-collection/31914-gina-k-1624.html"><img src="//static.msromantic.com/68339/gina-k-1624.jpg" alt="Gina K 1624" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/gina-k-tulip-collection/31914-gina-k-1624.html"><img src="//static.msromantic.com/68339/gina-k-1624.jpg" alt="Gina K 1624" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/gina-k-tulip-collection/31914-gina-k-1624.html](https://www.readybrides.com/en/gina-k-tulip-collection/31914-gina-k-1624.html)
+Buy it: [https://www.antebrands.com/en/gina-k-tulip-collection/31914-gina-k-1624.html](https://www.antebrands.com/en/gina-k-tulip-collection/31914-gina-k-1624.html)

@@ -9,7 +9,7 @@ tags: [Gwendolynne]
 Just **$619.99**
 ### 
 
-<a href="https://www.readybrides.com/en/gwendolynne/32333-gwendolynne-stasia-wedding-dress-gwendolynne-red-carpet-runway-runway-mbffs.html"><img src="//static.msromantic.com/69116/gwendolynne-stasia-wedding-dress-gwendolynne-red-carpet-runway-runway-mbffs.jpg" alt="Gwendolynne Stasia Wedding Dress - Gwendolynne -Red Carpet Runway Runway - MBFFS" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/gwendolynne/32333-gwendolynne-stasia-wedding-dress-gwendolynne-red-carpet-runway-runway-mbffs.html"><img src="//static.msromantic.com/69116/gwendolynne-stasia-wedding-dress-gwendolynne-red-carpet-runway-runway-mbffs.jpg" alt="Gwendolynne Stasia Wedding Dress - Gwendolynne -Red Carpet Runway Runway - MBFFS" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/gwendolynne/32333-gwendolynne-stasia-wedding-dress-gwendolynne-red-carpet-runway-runway-mbffs.html](https://www.readybrides.com/en/gwendolynne/32333-gwendolynne-stasia-wedding-dress-gwendolynne-red-carpet-runway-runway-mbffs.html)
+Buy it: [https://www.antebrands.com/en/gwendolynne/32333-gwendolynne-stasia-wedding-dress-gwendolynne-red-carpet-runway-runway-mbffs.html](https://www.antebrands.com/en/gwendolynne/32333-gwendolynne-stasia-wedding-dress-gwendolynne-red-carpet-runway-runway-mbffs.html)

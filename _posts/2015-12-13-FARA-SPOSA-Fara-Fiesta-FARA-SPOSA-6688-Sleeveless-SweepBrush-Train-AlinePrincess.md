@@ -9,7 +9,7 @@ tags: [FARA SPOSA - Fara Fiesta,FARA SPOSA,Aline/Princess ,One shoulder,Sweep/Br
 Just **$349.99**
 ###   Sleeveless Sweep/Brush Train Aline/Princess  
 <table><tr><td>BRANDS</td><td>FARA SPOSA</td></tr><tr><td>Silhouette</td><td>Aline/Princess </td></tr><tr><td>Neckline</td><td>One shoulder</td></tr><tr><td>Hemline/Train</td><td>Sweep/Brush Train</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/fara-sposa-fara-fiesta-return-to-collection-2016/30582-fara-sposa-6688.html"><img src="//static.msromantic.com/65946/fara-sposa-6688.jpg" alt="FARA SPOSA 6688" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/fara-sposa-fara-fiesta-return-to-collection-2016/30582-fara-sposa-6688.html"><img src="//static.msromantic.com/65946/fara-sposa-6688.jpg" alt="FARA SPOSA 6688" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/fara-sposa-fara-fiesta-return-to-collection-2016/30582-fara-sposa-6688.html](https://www.readybrides.com/en/fara-sposa-fara-fiesta-return-to-collection-2016/30582-fara-sposa-6688.html)
+Buy it: [https://www.antebrands.com/en/fara-sposa-fara-fiesta-return-to-collection-2016/30582-fara-sposa-6688.html](https://www.antebrands.com/en/fara-sposa-fara-fiesta-return-to-collection-2016/30582-fara-sposa-6688.html)

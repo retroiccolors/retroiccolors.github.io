@@ -9,8 +9,8 @@ tags: [Gina K ,Gina K,Ballgown,Strapless,Sweep/Brush Train,Sleeveless]
 Just **$499.99**
 ###   Sleeveless Sweep/Brush Train Ballgown 
 <table><tr><td>BRANDS</td><td>Gina K</td></tr><tr><td>Silhouette</td><td>Ballgown</td></tr><tr><td>Neckline</td><td>Strapless</td></tr><tr><td>Hemline/Train</td><td>Sweep/Brush Train</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/gina-k-evening-collection/31982-gina-k-1692.html"><img src="//static.msromantic.com/68435/gina-k-1692.jpg" alt="Gina K 1692" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/gina-k-evening-collection/31982-gina-k-1692.html"><img src="//static.msromantic.com/68435/gina-k-1692.jpg" alt="Gina K 1692" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/gina-k-evening-collection/31982-gina-k-1692.html"><img src="//static.msromantic.com/68436/gina-k-1692.jpg" alt="Gina K 1692" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/gina-k-evening-collection/31982-gina-k-1692.html"><img src="//static.msromantic.com/68434/gina-k-1692.jpg" alt="Gina K 1692" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/gina-k-evening-collection/31982-gina-k-1692.html](https://www.readybrides.com/en/gina-k-evening-collection/31982-gina-k-1692.html)
+<!-- break --><a href="https://www.antebrands.com/en/gina-k-evening-collection/31982-gina-k-1692.html"><img src="//static.msromantic.com/68436/gina-k-1692.jpg" alt="Gina K 1692" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/gina-k-evening-collection/31982-gina-k-1692.html"><img src="//static.msromantic.com/68434/gina-k-1692.jpg" alt="Gina K 1692" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/gina-k-evening-collection/31982-gina-k-1692.html](https://www.antebrands.com/en/gina-k-evening-collection/31982-gina-k-1692.html)

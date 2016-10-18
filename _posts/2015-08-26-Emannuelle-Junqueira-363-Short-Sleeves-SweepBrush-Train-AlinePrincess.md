@@ -9,7 +9,7 @@ tags: [Emannuelle Junqueira ,Emannuelle Junqueira,Aline/Princess ,Scoop Neck,Swe
 Just **$469.99**
 ###   Short Sleeves Sweep/Brush Train Aline/Princess  
 <table><tr><td>BRANDS</td><td>Emannuelle Junqueira</td></tr><tr><td>Silhouette</td><td>Aline/Princess </td></tr><tr><td>Neckline</td><td>Scoop Neck</td></tr><tr><td>Hemline/Train</td><td>Sweep/Brush Train</td></tr><tr><td>Sleeve</td><td>Short Sleeves</td></tr></table>
-<a href="https://www.readybrides.com/en/emannuelle-junqueira-off-white-2015/30006-emannuelle-junqueira-363.html"><img src="//static.msromantic.com/64881/emannuelle-junqueira-363.jpg" alt="Emannuelle Junqueira 363" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/emannuelle-junqueira-off-white-2015/30006-emannuelle-junqueira-363.html"><img src="//static.msromantic.com/64881/emannuelle-junqueira-363.jpg" alt="Emannuelle Junqueira 363" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/emannuelle-junqueira-off-white-2015/30006-emannuelle-junqueira-363.html"><img src="//static.msromantic.com/64880/emannuelle-junqueira-363.jpg" alt="Emannuelle Junqueira 363" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/emannuelle-junqueira-off-white-2015/30006-emannuelle-junqueira-363.html](https://www.readybrides.com/en/emannuelle-junqueira-off-white-2015/30006-emannuelle-junqueira-363.html)
+<!-- break --><a href="https://www.antebrands.com/en/emannuelle-junqueira-off-white-2015/30006-emannuelle-junqueira-363.html"><img src="//static.msromantic.com/64880/emannuelle-junqueira-363.jpg" alt="Emannuelle Junqueira 363" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/emannuelle-junqueira-off-white-2015/30006-emannuelle-junqueira-363.html](https://www.antebrands.com/en/emannuelle-junqueira-off-white-2015/30006-emannuelle-junqueira-363.html)

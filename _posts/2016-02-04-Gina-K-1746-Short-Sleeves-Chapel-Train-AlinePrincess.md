@@ -9,7 +9,7 @@ tags: [Gina K,Aline/Princess ,Off The Shoulder,Chapel Train,Short Sleeves]
 Just **$529.99**
 ###   Short Sleeves Chapel Train Aline/Princess  
 <table><tr><td>BRANDS</td><td>Gina K</td></tr><tr><td>Silhouette</td><td>Aline/Princess </td></tr><tr><td>Neckline</td><td>Off The Shoulder</td></tr><tr><td>Hemline/Train</td><td>Chapel Train</td></tr><tr><td>Sleeve</td><td>Short Sleeves</td></tr></table>
-<a href="https://www.readybrides.com/en/gina-k-tulip-collection/32036-gina-k-1746.html"><img src="//static.msromantic.com/68529/gina-k-1746.jpg" alt="Gina K 1746" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/gina-k-tulip-collection/32036-gina-k-1746.html"><img src="//static.msromantic.com/68529/gina-k-1746.jpg" alt="Gina K 1746" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/gina-k-tulip-collection/32036-gina-k-1746.html"><img src="//static.msromantic.com/68528/gina-k-1746.jpg" alt="Gina K 1746" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/gina-k-tulip-collection/32036-gina-k-1746.html](https://www.readybrides.com/en/gina-k-tulip-collection/32036-gina-k-1746.html)
+<!-- break --><a href="https://www.antebrands.com/en/gina-k-tulip-collection/32036-gina-k-1746.html"><img src="//static.msromantic.com/68528/gina-k-1746.jpg" alt="Gina K 1746" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/gina-k-tulip-collection/32036-gina-k-1746.html](https://www.antebrands.com/en/gina-k-tulip-collection/32036-gina-k-1746.html)

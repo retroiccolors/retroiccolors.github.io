@@ -9,7 +9,7 @@ tags: [Gwendolynne,Sweep/Brush Train,Short Sleeves]
 Just **$649.99**
 ###   Short Sleeves Sweep/Brush Train  
 <table><tr><td>BRANDS</td><td>Gwendolynne</td></tr><tr><td>Hemline/Train</td><td>Sweep/Brush Train</td></tr><tr><td>Sleeve</td><td>Short Sleeves</td></tr></table>
-<a href="https://www.readybrides.com/en/gwendolynne/32371-gwendolynne-sabine.html"><img src="//static.msromantic.com/69176/gwendolynne-sabine.jpg" alt="Gwendolynne Sabine" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/gwendolynne/32371-gwendolynne-sabine.html"><img src="//static.msromantic.com/69176/gwendolynne-sabine.jpg" alt="Gwendolynne Sabine" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/gwendolynne/32371-gwendolynne-sabine.html](https://www.readybrides.com/en/gwendolynne/32371-gwendolynne-sabine.html)
+Buy it: [https://www.antebrands.com/en/gwendolynne/32371-gwendolynne-sabine.html](https://www.antebrands.com/en/gwendolynne/32371-gwendolynne-sabine.html)

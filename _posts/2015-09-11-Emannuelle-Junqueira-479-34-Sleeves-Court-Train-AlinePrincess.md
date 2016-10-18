@@ -9,7 +9,7 @@ tags: [Emannuelle Junqueira ,Emannuelle Junqueira,Aline/Princess ,Bateau,Court T
 Just **$359.99**
 ###   3/4 Sleeves Court Train Aline/Princess  
 <table><tr><td>BRANDS</td><td>Emannuelle Junqueira</td></tr><tr><td>Silhouette</td><td>Aline/Princess </td></tr><tr><td>Neckline</td><td>Bateau</td></tr><tr><td>Hemline/Train</td><td>Court Train</td></tr><tr><td>Sleeve</td><td>3/4 Sleeves</td></tr></table>
-<a href="https://www.readybrides.com/en/emannuelle-junqueira-off-white-2015/30022-emannuelle-junqueira-479.html"><img src="//static.msromantic.com/64905/emannuelle-junqueira-479.jpg" alt="Emannuelle Junqueira 479" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/emannuelle-junqueira-off-white-2015/30022-emannuelle-junqueira-479.html"><img src="//static.msromantic.com/64905/emannuelle-junqueira-479.jpg" alt="Emannuelle Junqueira 479" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/emannuelle-junqueira-off-white-2015/30022-emannuelle-junqueira-479.html](https://www.readybrides.com/en/emannuelle-junqueira-off-white-2015/30022-emannuelle-junqueira-479.html)
+Buy it: [https://www.antebrands.com/en/emannuelle-junqueira-off-white-2015/30022-emannuelle-junqueira-479.html](https://www.antebrands.com/en/emannuelle-junqueira-off-white-2015/30022-emannuelle-junqueira-479.html)

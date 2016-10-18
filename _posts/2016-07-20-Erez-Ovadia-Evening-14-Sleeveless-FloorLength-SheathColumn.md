@@ -9,7 +9,7 @@ tags: [Erez Ovadia ,Erez Ovadia,Sheath/Column,Straps,Floor-Length,Sleeveless]
 Just **$199.99**
 ###   Sleeveless Floor-Length Sheath/Column 
 <table><tr><td>BRANDS</td><td>Erez Ovadia</td></tr><tr><td>Silhouette</td><td>Sheath/Column</td></tr><tr><td>Neckline</td><td>Straps</td></tr><tr><td>Hemline/Train</td><td>Floor-Length</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/erez-ovadia-evening-collection/30335-erez-ovadia-evening-14.html"><img src="//static.msromantic.com/65436/erez-ovadia-evening-14.jpg" alt="Erez Ovadia Evening - 14" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/erez-ovadia-evening-collection/30335-erez-ovadia-evening-14.html"><img src="//static.msromantic.com/65436/erez-ovadia-evening-14.jpg" alt="Erez Ovadia Evening - 14" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/erez-ovadia-evening-collection/30335-erez-ovadia-evening-14.html](https://www.readybrides.com/en/erez-ovadia-evening-collection/30335-erez-ovadia-evening-14.html)
+Buy it: [https://www.antebrands.com/en/erez-ovadia-evening-collection/30335-erez-ovadia-evening-14.html](https://www.antebrands.com/en/erez-ovadia-evening-collection/30335-erez-ovadia-evening-14.html)

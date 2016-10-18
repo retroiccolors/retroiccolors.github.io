@@ -9,7 +9,7 @@ tags: [FARA SPOSA - Fara Fiesta,FARA SPOSA,Sheath/Column,V-neck,Sweep/Brush Trai
 Just **$409.99**
 ###   Short Sleeves Sweep/Brush Train Sheath/Column 
 <table><tr><td>BRANDS</td><td>FARA SPOSA</td></tr><tr><td>Silhouette</td><td>Sheath/Column</td></tr><tr><td>Neckline</td><td>V-neck</td></tr><tr><td>Hemline/Train</td><td>Sweep/Brush Train</td></tr><tr><td>Sleeve</td><td>Short Sleeves</td></tr></table>
-<a href="https://www.readybrides.com/en/fara-sposa-fara-fiesta-return-to-collection-2016/30604-fara-sposa-6730.html"><img src="//static.msromantic.com/65968/fara-sposa-6730.jpg" alt="FARA SPOSA 6730" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/fara-sposa-fara-fiesta-return-to-collection-2016/30604-fara-sposa-6730.html"><img src="//static.msromantic.com/65968/fara-sposa-6730.jpg" alt="FARA SPOSA 6730" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/fara-sposa-fara-fiesta-return-to-collection-2016/30604-fara-sposa-6730.html](https://www.readybrides.com/en/fara-sposa-fara-fiesta-return-to-collection-2016/30604-fara-sposa-6730.html)
+Buy it: [https://www.antebrands.com/en/fara-sposa-fara-fiesta-return-to-collection-2016/30604-fara-sposa-6730.html](https://www.antebrands.com/en/fara-sposa-fara-fiesta-return-to-collection-2016/30604-fara-sposa-6730.html)

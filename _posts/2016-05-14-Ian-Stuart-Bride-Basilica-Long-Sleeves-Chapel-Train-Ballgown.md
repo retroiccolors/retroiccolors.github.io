@@ -9,7 +9,7 @@ tags: [Ian Stuart,Ballgown,Illusion,Chapel Train,Long Sleeves]
 Just **$399.99**
 ###   Long Sleeves Chapel Train Ballgown 
 <table><tr><td>BRANDS</td><td>Ian Stuart</td></tr><tr><td>Silhouette</td><td>Ballgown</td></tr><tr><td>Neckline</td><td>Illusion</td></tr><tr><td>Hemline/Train</td><td>Chapel Train</td></tr><tr><td>Sleeve</td><td>Long Sleeves</td></tr></table>
-<a href="https://www.readybrides.com/en/ian-stuart/34471-ian-stuart-bride-basilica.html"><img src="//static.msromantic.com/71647/ian-stuart-bride-basilica.jpg" alt="Ian Stuart Bride Basilica" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/ian-stuart/34471-ian-stuart-bride-basilica.html"><img src="//static.msromantic.com/71647/ian-stuart-bride-basilica.jpg" alt="Ian Stuart Bride Basilica" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/ian-stuart/34471-ian-stuart-bride-basilica.html](https://www.readybrides.com/en/ian-stuart/34471-ian-stuart-bride-basilica.html)
+Buy it: [https://www.antebrands.com/en/ian-stuart/34471-ian-stuart-bride-basilica.html](https://www.antebrands.com/en/ian-stuart/34471-ian-stuart-bride-basilica.html)

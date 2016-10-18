@@ -9,7 +9,7 @@ tags: [Gwendolynne,Sheath/Column,Illusion,Floor-Length,Long Sleeves]
 Just **$629.99**
 ###   Long Sleeves Floor-Length Sheath/Column 
 <table><tr><td>BRANDS</td><td>Gwendolynne</td></tr><tr><td>Silhouette</td><td>Sheath/Column</td></tr><tr><td>Neckline</td><td>Illusion</td></tr><tr><td>Hemline/Train</td><td>Floor-Length</td></tr><tr><td>Sleeve</td><td>Long Sleeves</td></tr></table>
-<a href="https://www.readybrides.com/en/gwendolynne/32338-gwendolynne-emma-wedding-dress-gwendolynne-red-carpet-runway-runway-mbffs.html"><img src="//static.msromantic.com/69124/gwendolynne-emma-wedding-dress-gwendolynne-red-carpet-runway-runway-mbffs.jpg" alt="Gwendolynne Emma Wedding Dress - Gwendolynne -Red Carpet Runway Runway - MBFFS" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/gwendolynne/32338-gwendolynne-emma-wedding-dress-gwendolynne-red-carpet-runway-runway-mbffs.html"><img src="//static.msromantic.com/69124/gwendolynne-emma-wedding-dress-gwendolynne-red-carpet-runway-runway-mbffs.jpg" alt="Gwendolynne Emma Wedding Dress - Gwendolynne -Red Carpet Runway Runway - MBFFS" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/gwendolynne/32338-gwendolynne-emma-wedding-dress-gwendolynne-red-carpet-runway-runway-mbffs.html](https://www.readybrides.com/en/gwendolynne/32338-gwendolynne-emma-wedding-dress-gwendolynne-red-carpet-runway-runway-mbffs.html)
+Buy it: [https://www.antebrands.com/en/gwendolynne/32338-gwendolynne-emma-wedding-dress-gwendolynne-red-carpet-runway-runway-mbffs.html](https://www.antebrands.com/en/gwendolynne/32338-gwendolynne-emma-wedding-dress-gwendolynne-red-carpet-runway-runway-mbffs.html)

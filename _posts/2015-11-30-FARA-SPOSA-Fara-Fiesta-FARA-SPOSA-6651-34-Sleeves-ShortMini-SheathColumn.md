@@ -9,7 +9,7 @@ tags: [FARA SPOSA - Fara Fiesta,FARA SPOSA,Sheath/Column,Square,Short/Mini,3/4 S
 Just **$329.99**
 ###   3/4 Sleeves Short/Mini Sheath/Column 
 <table><tr><td>BRANDS</td><td>FARA SPOSA</td></tr><tr><td>Silhouette</td><td>Sheath/Column</td></tr><tr><td>Neckline</td><td>Square</td></tr><tr><td>Hemline/Train</td><td>Short/Mini</td></tr><tr><td>Sleeve</td><td>3/4 Sleeves</td></tr></table>
-<a href="https://www.readybrides.com/en/fara-sposa-fara-fiesta-return-to-collection-2016/30569-fara-sposa-6651.html"><img src="//static.msromantic.com/65933/fara-sposa-6651.jpg" alt="FARA SPOSA 6651" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/fara-sposa-fara-fiesta-return-to-collection-2016/30569-fara-sposa-6651.html"><img src="//static.msromantic.com/65933/fara-sposa-6651.jpg" alt="FARA SPOSA 6651" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/fara-sposa-fara-fiesta-return-to-collection-2016/30569-fara-sposa-6651.html](https://www.readybrides.com/en/fara-sposa-fara-fiesta-return-to-collection-2016/30569-fara-sposa-6651.html)
+Buy it: [https://www.antebrands.com/en/fara-sposa-fara-fiesta-return-to-collection-2016/30569-fara-sposa-6651.html](https://www.antebrands.com/en/fara-sposa-fara-fiesta-return-to-collection-2016/30569-fara-sposa-6651.html)

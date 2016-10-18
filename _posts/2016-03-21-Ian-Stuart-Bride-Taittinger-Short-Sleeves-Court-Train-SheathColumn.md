@@ -9,7 +9,7 @@ tags: [Ian Stuart,Sheath/Column,Scoop Neck,Court Train,Short Sleeves]
 Just **$379.99**
 ###   Short Sleeves Court Train Sheath/Column 
 <table><tr><td>BRANDS</td><td>Ian Stuart</td></tr><tr><td>Silhouette</td><td>Sheath/Column</td></tr><tr><td>Neckline</td><td>Scoop Neck</td></tr><tr><td>Hemline/Train</td><td>Court Train</td></tr><tr><td>Sleeve</td><td>Short Sleeves</td></tr></table>
-<a href="https://www.readybrides.com/en/ian-stuart/34417-ian-stuart-bride-taittinger.html"><img src="//static.msromantic.com/71584/ian-stuart-bride-taittinger.jpg" alt="Ian Stuart Bride Taittinger" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/ian-stuart/34417-ian-stuart-bride-taittinger.html"><img src="//static.msromantic.com/71584/ian-stuart-bride-taittinger.jpg" alt="Ian Stuart Bride Taittinger" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/ian-stuart/34417-ian-stuart-bride-taittinger.html"><img src="//static.msromantic.com/71583/ian-stuart-bride-taittinger.jpg" alt="Ian Stuart Bride Taittinger" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/ian-stuart/34417-ian-stuart-bride-taittinger.html](https://www.readybrides.com/en/ian-stuart/34417-ian-stuart-bride-taittinger.html)
+<!-- break --><a href="https://www.antebrands.com/en/ian-stuart/34417-ian-stuart-bride-taittinger.html"><img src="//static.msromantic.com/71583/ian-stuart-bride-taittinger.jpg" alt="Ian Stuart Bride Taittinger" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/ian-stuart/34417-ian-stuart-bride-taittinger.html](https://www.antebrands.com/en/ian-stuart/34417-ian-stuart-bride-taittinger.html)

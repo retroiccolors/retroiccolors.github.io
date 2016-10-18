@@ -9,7 +9,7 @@ tags: [Ida Sjöstedt,Ida Sjostedt,Aline/Princess ,Off The Shoulder,Sweep/Brush T
 Just **$299.99**
 ###   Short Sleeves Sweep/Brush Train Aline/Princess  
 <table><tr><td>BRANDS</td><td>Ida Sjostedt</td></tr><tr><td>Silhouette</td><td>Aline/Princess </td></tr><tr><td>Neckline</td><td>Off The Shoulder</td></tr><tr><td>Hemline/Train</td><td>Sweep/Brush Train</td></tr><tr><td>Sleeve</td><td>Short Sleeves</td></tr></table>
-<a href="https://www.readybrides.com/en/ida-sjoestedt/34503-ida-sjostedt-highness-dress.html"><img src="//static.msromantic.com/71683/ida-sjostedt-highness-dress.jpg" alt="Ida Sjostedt Highness dress" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/ida-sjoestedt/34503-ida-sjostedt-highness-dress.html"><img src="//static.msromantic.com/71683/ida-sjostedt-highness-dress.jpg" alt="Ida Sjostedt Highness dress" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/ida-sjoestedt/34503-ida-sjostedt-highness-dress.html](https://www.readybrides.com/en/ida-sjoestedt/34503-ida-sjostedt-highness-dress.html)
+Buy it: [https://www.antebrands.com/en/ida-sjoestedt/34503-ida-sjostedt-highness-dress.html](https://www.antebrands.com/en/ida-sjoestedt/34503-ida-sjostedt-highness-dress.html)

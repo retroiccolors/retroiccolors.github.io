@@ -9,8 +9,8 @@ tags: [FARA SPOSA - Fara Sposa,FARA SPOSA,Sheath/Column,Illusion,Court Train,Sle
 Just **$369.99**
 ###   Sleeveless Court Train Sheath/Column 
 <table><tr><td>BRANDS</td><td>FARA SPOSA</td></tr><tr><td>Silhouette</td><td>Sheath/Column</td></tr><tr><td>Neckline</td><td>Illusion</td></tr><tr><td>Hemline/Train</td><td>Court Train</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/fara-sposa-fara-sposa-return-to-collection-2016/30483-fara-sposa-5616.html"><img src="//static.msromantic.com/65755/fara-sposa-5616.jpg" alt="FARA SPOSA 5616" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/fara-sposa-fara-sposa-return-to-collection-2016/30483-fara-sposa-5616.html"><img src="//static.msromantic.com/65755/fara-sposa-5616.jpg" alt="FARA SPOSA 5616" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/fara-sposa-fara-sposa-return-to-collection-2016/30483-fara-sposa-5616.html"><img src="//static.msromantic.com/65756/fara-sposa-5616.jpg" alt="FARA SPOSA 5616" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/fara-sposa-fara-sposa-return-to-collection-2016/30483-fara-sposa-5616.html"><img src="//static.msromantic.com/65754/fara-sposa-5616.jpg" alt="FARA SPOSA 5616" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/fara-sposa-fara-sposa-return-to-collection-2016/30483-fara-sposa-5616.html](https://www.readybrides.com/en/fara-sposa-fara-sposa-return-to-collection-2016/30483-fara-sposa-5616.html)
+<!-- break --><a href="https://www.antebrands.com/en/fara-sposa-fara-sposa-return-to-collection-2016/30483-fara-sposa-5616.html"><img src="//static.msromantic.com/65756/fara-sposa-5616.jpg" alt="FARA SPOSA 5616" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/fara-sposa-fara-sposa-return-to-collection-2016/30483-fara-sposa-5616.html"><img src="//static.msromantic.com/65754/fara-sposa-5616.jpg" alt="FARA SPOSA 5616" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/fara-sposa-fara-sposa-return-to-collection-2016/30483-fara-sposa-5616.html](https://www.antebrands.com/en/fara-sposa-fara-sposa-return-to-collection-2016/30483-fara-sposa-5616.html)

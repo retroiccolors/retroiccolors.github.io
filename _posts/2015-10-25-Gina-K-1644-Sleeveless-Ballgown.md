@@ -9,7 +9,7 @@ tags: [Gina K,Ballgown,Strapless,Sleeveless]
 Just **$499.99**
 ###   Sleeveless  Ballgown 
 <table><tr><td>BRANDS</td><td>Gina K</td></tr><tr><td>Silhouette</td><td>Ballgown</td></tr><tr><td>Neckline</td><td>Strapless</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/gina-k-tulip-collection/31934-gina-k-1644.html"><img src="//static.msromantic.com/68359/gina-k-1644.jpg" alt="Gina K 1644" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/gina-k-tulip-collection/31934-gina-k-1644.html"><img src="//static.msromantic.com/68359/gina-k-1644.jpg" alt="Gina K 1644" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/gina-k-tulip-collection/31934-gina-k-1644.html](https://www.readybrides.com/en/gina-k-tulip-collection/31934-gina-k-1644.html)
+Buy it: [https://www.antebrands.com/en/gina-k-tulip-collection/31934-gina-k-1644.html](https://www.antebrands.com/en/gina-k-tulip-collection/31934-gina-k-1644.html)

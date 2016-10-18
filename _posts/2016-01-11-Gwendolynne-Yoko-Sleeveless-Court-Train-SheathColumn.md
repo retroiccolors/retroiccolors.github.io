@@ -9,7 +9,7 @@ tags: [Gwendolynne,Sheath/Column,Halter,Court Train,Sleeveless]
 Just **$589.99**
 ###   Sleeveless Court Train Sheath/Column 
 <table><tr><td>BRANDS</td><td>Gwendolynne</td></tr><tr><td>Silhouette</td><td>Sheath/Column</td></tr><tr><td>Neckline</td><td>Halter</td></tr><tr><td>Hemline/Train</td><td>Court Train</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/gwendolynne/32479-gwendolynne-yoko.html"><img src="//static.msromantic.com/69347/gwendolynne-yoko.jpg" alt="Gwendolynne Yoko" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/gwendolynne/32479-gwendolynne-yoko.html"><img src="//static.msromantic.com/69347/gwendolynne-yoko.jpg" alt="Gwendolynne Yoko" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/gwendolynne/32479-gwendolynne-yoko.html"><img src="//static.msromantic.com/69346/gwendolynne-yoko.jpg" alt="Gwendolynne Yoko" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/gwendolynne/32479-gwendolynne-yoko.html](https://www.readybrides.com/en/gwendolynne/32479-gwendolynne-yoko.html)
+<!-- break --><a href="https://www.antebrands.com/en/gwendolynne/32479-gwendolynne-yoko.html"><img src="//static.msromantic.com/69346/gwendolynne-yoko.jpg" alt="Gwendolynne Yoko" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/gwendolynne/32479-gwendolynne-yoko.html](https://www.antebrands.com/en/gwendolynne/32479-gwendolynne-yoko.html)

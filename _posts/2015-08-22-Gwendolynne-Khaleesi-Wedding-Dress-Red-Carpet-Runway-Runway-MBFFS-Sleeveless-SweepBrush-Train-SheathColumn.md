@@ -9,7 +9,7 @@ tags: [Gwendolynne,Sheath/Column,Halter,Sweep/Brush Train,Sleeveless]
 Just **$439.99**
 ###   Sleeveless Sweep/Brush Train Sheath/Column 
 <table><tr><td>BRANDS</td><td>Gwendolynne</td></tr><tr><td>Silhouette</td><td>Sheath/Column</td></tr><tr><td>Neckline</td><td>Halter</td></tr><tr><td>Hemline/Train</td><td>Sweep/Brush Train</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/gwendolynne/32337-gwendolynne-khaleesi-wedding-dress-gwendolynne-red-carpet-runway-runway-mbffs.html"><img src="//static.msromantic.com/69123/gwendolynne-khaleesi-wedding-dress-gwendolynne-red-carpet-runway-runway-mbffs.jpg" alt="Gwendolynne Khaleesi Wedding Dress - Gwendolynne -Red Carpet Runway Runway - MBFFS" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/gwendolynne/32337-gwendolynne-khaleesi-wedding-dress-gwendolynne-red-carpet-runway-runway-mbffs.html"><img src="//static.msromantic.com/69123/gwendolynne-khaleesi-wedding-dress-gwendolynne-red-carpet-runway-runway-mbffs.jpg" alt="Gwendolynne Khaleesi Wedding Dress - Gwendolynne -Red Carpet Runway Runway - MBFFS" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/gwendolynne/32337-gwendolynne-khaleesi-wedding-dress-gwendolynne-red-carpet-runway-runway-mbffs.html](https://www.readybrides.com/en/gwendolynne/32337-gwendolynne-khaleesi-wedding-dress-gwendolynne-red-carpet-runway-runway-mbffs.html)
+Buy it: [https://www.antebrands.com/en/gwendolynne/32337-gwendolynne-khaleesi-wedding-dress-gwendolynne-red-carpet-runway-runway-mbffs.html](https://www.antebrands.com/en/gwendolynne/32337-gwendolynne-khaleesi-wedding-dress-gwendolynne-red-carpet-runway-runway-mbffs.html)

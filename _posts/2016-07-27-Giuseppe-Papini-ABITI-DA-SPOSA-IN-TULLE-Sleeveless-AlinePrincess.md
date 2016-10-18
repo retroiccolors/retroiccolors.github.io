@@ -9,7 +9,7 @@ tags: [Giuseppe Papini,Aline/Princess ,Strapless,Sleeveless]
 Just **$289.99**
 ###   Sleeveless  Aline/Princess  
 <table><tr><td>BRANDS</td><td>Giuseppe Papini</td></tr><tr><td>Silhouette</td><td>Aline/Princess </td></tr><tr><td>Neckline</td><td>Strapless</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/giuseppe-papini-adv-2016/32210-giuseppe-papini-abiti-da-sposa-in-tulle.html"><img src="//static.msromantic.com/68932/giuseppe-papini-abiti-da-sposa-in-tulle.jpg" alt="Giuseppe Papini ABITI DA SPOSA IN TULLE" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/giuseppe-papini-adv-2016/32210-giuseppe-papini-abiti-da-sposa-in-tulle.html"><img src="//static.msromantic.com/68932/giuseppe-papini-abiti-da-sposa-in-tulle.jpg" alt="Giuseppe Papini ABITI DA SPOSA IN TULLE" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/giuseppe-papini-adv-2016/32210-giuseppe-papini-abiti-da-sposa-in-tulle.html](https://www.readybrides.com/en/giuseppe-papini-adv-2016/32210-giuseppe-papini-abiti-da-sposa-in-tulle.html)
+Buy it: [https://www.antebrands.com/en/giuseppe-papini-adv-2016/32210-giuseppe-papini-abiti-da-sposa-in-tulle.html](https://www.antebrands.com/en/giuseppe-papini-adv-2016/32210-giuseppe-papini-abiti-da-sposa-in-tulle.html)

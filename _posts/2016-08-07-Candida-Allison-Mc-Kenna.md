@@ -9,8 +9,8 @@ tags: [Candida Allison]
 Just **$169.99**
 ### 
 
-<a href="https://www.readybrides.com/en/candida-allison/20546-candida-allison-mc-kenna.html"><img src="//static.msromantic.com/46434/candida-allison-mc-kenna.jpg" alt="Candida Allison Mc Kenna" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/candida-allison/20546-candida-allison-mc-kenna.html"><img src="//static.msromantic.com/46434/candida-allison-mc-kenna.jpg" alt="Candida Allison Mc Kenna" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/candida-allison/20546-candida-allison-mc-kenna.html"><img src="//static.msromantic.com/46435/candida-allison-mc-kenna.jpg" alt="Candida Allison Mc Kenna" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/candida-allison/20546-candida-allison-mc-kenna.html"><img src="//static.msromantic.com/46433/candida-allison-mc-kenna.jpg" alt="Candida Allison Mc Kenna" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/candida-allison/20546-candida-allison-mc-kenna.html](https://www.readybrides.com/en/candida-allison/20546-candida-allison-mc-kenna.html)
+<!-- break --><a href="https://www.antebrands.com/en/candida-allison/20546-candida-allison-mc-kenna.html"><img src="//static.msromantic.com/46435/candida-allison-mc-kenna.jpg" alt="Candida Allison Mc Kenna" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/candida-allison/20546-candida-allison-mc-kenna.html"><img src="//static.msromantic.com/46433/candida-allison-mc-kenna.jpg" alt="Candida Allison Mc Kenna" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/candida-allison/20546-candida-allison-mc-kenna.html](https://www.antebrands.com/en/candida-allison/20546-candida-allison-mc-kenna.html)

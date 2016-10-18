@@ -9,8 +9,8 @@ tags: [Eddy K ,Eddy K,Ballgown,Illusion,Chapel Train,Short Sleeves,2016]
 Just **$259.99**
 ### 2016  Short Sleeves Chapel Train Ballgown 
 <table><tr><td>BRANDS</td><td>Eddy K</td></tr><tr><td>Silhouette</td><td>Ballgown</td></tr><tr><td>Neckline</td><td>Illusion</td></tr><tr><td>Hemline/Train</td><td>Chapel Train</td></tr><tr><td>Sleeve</td><td>Short Sleeves</td></tr><tr><td>Years</td><td>2016</td></tr></table>
-<a href="https://www.readybrides.com/en/eddy-k-/26019-eddy-k-ek1075.html"><img src="//static.msromantic.com/58208/eddy-k-ek1075.jpg" alt="Eddy K Wedding Gowns 2016 - EK1075" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/eddy-k-/26019-eddy-k-ek1075.html"><img src="//static.msromantic.com/58208/eddy-k-ek1075.jpg" alt="Eddy K Wedding Gowns 2016 - EK1075" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/eddy-k-/26019-eddy-k-ek1075.html"><img src="//static.msromantic.com/58209/eddy-k-ek1075.jpg" alt="Eddy K Wedding Gowns 2016 - EK1075" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/eddy-k-/26019-eddy-k-ek1075.html"><img src="//static.msromantic.com/58207/eddy-k-ek1075.jpg" alt="Eddy K Wedding Gowns 2016 - EK1075" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/eddy-k-/26019-eddy-k-ek1075.html](https://www.readybrides.com/en/eddy-k-/26019-eddy-k-ek1075.html)
+<!-- break --><a href="https://www.antebrands.com/en/eddy-k-/26019-eddy-k-ek1075.html"><img src="//static.msromantic.com/58209/eddy-k-ek1075.jpg" alt="Eddy K Wedding Gowns 2016 - EK1075" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/eddy-k-/26019-eddy-k-ek1075.html"><img src="//static.msromantic.com/58207/eddy-k-ek1075.jpg" alt="Eddy K Wedding Gowns 2016 - EK1075" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/eddy-k-/26019-eddy-k-ek1075.html](https://www.antebrands.com/en/eddy-k-/26019-eddy-k-ek1075.html)
