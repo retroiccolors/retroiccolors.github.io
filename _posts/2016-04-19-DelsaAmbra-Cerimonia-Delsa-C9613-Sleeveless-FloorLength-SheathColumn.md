@@ -1,6 +1,6 @@
 ---
 layout: post
-date: '2016-04-19'
+date: 2016-04-19
 title: "Delsa-Ambra Cerimonia Delsa C9613 Sleeveless Floor-Length Sheath/Column"
 category: Delsa-Ambra Cerimonia
 tags: [Delsa-Ambra Cerimonia,Delsa-Ambra Cerimonia ,Sheath/Column,Floor-Length,Sleeveless]

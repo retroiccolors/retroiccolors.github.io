@@ -1,6 +1,6 @@
 ---
 layout: post
-date: '2017-03-18'
+date: 2017-03-18
 title: "Mon Cheri TS11596 Sleeveless Short/Mini Sheath/Column"
 category: Mon Cheri
 tags: [Mon Cheri,Sheath/Column,V-neck,Short/Mini,Sleeveless]

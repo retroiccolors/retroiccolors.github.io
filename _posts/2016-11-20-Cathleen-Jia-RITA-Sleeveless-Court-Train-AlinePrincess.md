@@ -1,6 +1,6 @@
 ---
 layout: post
-date: '2016-11-20'
+date: 2016-11-20
 title: "Cathleen Jia RITA Sleeveless Court Train Aline/Princess"
 category: Cathleen Jia 
 tags: [Cathleen Jia ,Cathlee Jia,Aline/Princess ,High Neck,Court Train,Sleeveless]

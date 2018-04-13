@@ -1,6 +1,6 @@
 ---
 layout: post
-date: '2016-11-05'
+date: 2016-11-05
 title: "Atelier Emé FYSAM006 Sleeveless Chapel Train Ballgown"
 category: Atelier Emé
 tags: [Atelier Emé,Ballgown,Sweetheart,Chapel Train,Sleeveless]

@@ -1,6 +1,6 @@
 ---
 layout: post
-date: '2018-02-20'
+date: 2018-02-20
 title: "Ian Stuart Bride Salamanca Short Sleeves Sweep/Brush Train Sheath/Column"
 category: Ian Stuart
 tags: [Ian Stuart,Sheath/Column,Off The Shoulder,Sweep/Brush Train,Short Sleeves]
